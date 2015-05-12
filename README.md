@@ -3,3 +3,4 @@
 - アルフォート
 - うまい棒
 - ブラックサンダー
+- maaaasuokuuuuuuun
